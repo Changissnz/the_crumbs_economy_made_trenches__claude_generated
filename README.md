@@ -11,7 +11,7 @@ During the first half of Crumbs' rule, the domestic social fabric had begun show
 
 New families were hard to start. Careers were difficult to enter. People who would ordinarily keep their opinions to themselves found it harder to do so. When that group loses its composure, something structural has shifted.
 
-The proposed solutions borrowed partly from Schinian practices — collectivist frameworks applied to a Western political tradition built on different foundations. The specifics of Schinian autocratic collectivism did not translate cleanly onto Western monarchism and statism. The result was policies that looked coherent on paper and produced confusion in practice.
+The proposed solutions borrowed partly from Schinian practices — collectivist frameworks applied to a Western political tradition built on different foundations. The incompatibilities ran deep. Ideologies such as feminism, populism, and work ethic between Western society and Schinia were not always comparable. One side had promoted kinds of slavery through capitalism, the other through socialism. One side valued its slaves more than its servants. One side viewed sexuality as slavery, the other as liberty. It was difficult to distinguish these nuances, since both the United States and Schinia were vast territories with enormous internal variance. So oftentimes, appearances were more than face value. Appearances dictated things.
 
 ---
 
@@ -31,7 +31,7 @@ The steady advancement of A.I. also posed a longer-term problem. As these system
 
 ---
 
-Media had been democratized by widespread internet adoption well before Crumbs took office. By the time he left, that democratization had produced a large volume of content and a significant amount of cultural loss alongside it. Creators and work of genuine quality from earlier periods became harder to find and harder to reach. The people who might have valued that work could not always get to it. This happened in part because democratization coincided with a broad decline in purchasing power. Ambitions that might have built something lasting were cut short before any real foundation formed.
+Media had been democratized by widespread internet adoption well before Crumbs took office. By the time he left, that democratization had produced many ghosts of history. The melancholic sentiment is that these ghosts were, in fact, much more valuable in their time and era, the media they were in of much higher quality, yet they can never be physically in front of the people that want them. This happened in part because democratization coincided with a broad decline in purchasing power. Ambitions that might have built something lasting were cut short before any real foundation formed.
 
 ---
 
